@@ -1,6 +1,6 @@
 ## Hi there, I'm Ömer Can. :blush:
 
-###| Astronomy Student |
+### Astronomy Student |
 
 
 ### Reach out to me
